@@ -1,0 +1,10 @@
+Susan Shipman Cryer performs Dramatic Readings of Literature – the Oral Interpretation of Literature.
+
+Educated and trained at Northwestern University in Evanston, Illinois, Susan earned a B.S. and an M.A. from the School of Speech, Department of Oral Interpretation of Literature (now the Performance Studies in Literature). Her strong minor was in literature, both American and European. While at Northwestern she appeared in numerous Department “Reading Hours”, received awards for performance (poetry, prose), and was the Isabel Lovedale Scholar for her Master’s Degree. She was also President of her Sorority and a member of Zeta Phi Eta, National Speech honorary.
+
+She has performed Dramatic Readings of Literature for a wide variety of audiences of all ages, clubs, schools, churches, and organizations for over twenty five years. Her programs run the gamut from a study of one writer or several, one genre, or a combination of short stories, poetry, drama, as well as various themes and holiday programs. Programs can be tailor-made for any event or occasion, an unusual ability for a performer of literature. In addition to her program work, Mrs. Cryer has taught Speech, English, and ESL (English as a Second Language) on the college level at local universities, including the Washington University, Graduate International Students Summer Classes (Summer 2005) and Maryville University Saint Louis in Speech, where she is professor emeritus.
+
+Outside interests include reading, swimming, tennis, walking, Archaeology, History, Astronomy, History, Art, theater, music and writing poetry. She especially enjoys her children – Phil and Justine – her grandchildren – Kacy, Ben, Matthew and Emma – her daughter-in-law, Mary and her son-in-law, Tom.
+
+She has read Audio Books/Books for the Blind in the past, done narrations and voice-overs, and she has served as a Lector at Ladue Chapel. She acts as Professional Storyteller for The Tea Room in the Valley in Valley Park, she appeared in C.J. Zander’s original play, “Three Women”, has volunteered for Stages St. Louis and Strut and Fret Players in St. Louis.
+

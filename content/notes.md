@@ -1,0 +1,7 @@
+The Power of the Spoken Word
+An overview of Oral Interpretation and Performance
+
+Oral Interpretation and Performance Studies of Literature can be defined as – “The study of literature through the medium of oral performance” or “The art of analyzing a selection from literature and effectively communication all of its elements to an audience”. It involves an experience of literature as a reality and a communication of that reality to an audience. The interpreter transforms the cold, blank words from off the printed page into live ideas, emotions, and characters through the reading of the literature.
+
+This performance is a re-creation of literature. This is a re-creative art, like music. The performer interprets the ideas put into words by the author. The interpreter acts as the “middleman” between the author’s intent (the printed page) and the audience. He/She uses suggestion so that his/her audience can create the scene in their minds (like radio drama).  This special dramatic work requires a challenging preparation schedule, replete with detail and specifics; combining research and rehearsal of the work. This art requires a real study and an appreciation of one’s material as a total work of art, and the ability to communicate this through voice and body. It demands both an intellectual and an emotional response from the performer, and a control and channeling of the understanding and emotion to elicit a similar response from the audience (or empathy).
+
